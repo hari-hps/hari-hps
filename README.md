@@ -2,7 +2,7 @@
 - 👀 I’m interested in IoT Applications and Blockchain Technology
 - 🌱 I’m currently learning Cyber security
 - 💞️ I’m looking to collaborate on Social Media pages
-- 📫 How to reach me 
+- 📫 How to reach me Instagram & Linkedin ! 
 
 <!---
 hari-hps/hari-hps is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
